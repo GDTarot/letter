@@ -1,6 +1,5 @@
-### letter 
 
-###### **Gail Dillard, Ph.D.** 
+### **Gail Dillard, Ph.D.** 
 2640 N.E. Eighth Avenue, Apt. 15   
 Wilton Manors, Florida 33334  
 786-503-2281  
